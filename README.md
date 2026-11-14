@@ -38,7 +38,7 @@
 ### 📫 Connect With Me
 
 * **LinkedIn:** [Linkedin](https://www.linkedin.com/in/sunidhi-mahajan-94a17a445)
-* **Email:** [Gmail](mailto:sunidhimahajan09@gmail.com)
+* **Email:** [Gmail](sunidhimahajan234@gmail.com)
 
 ---
 
